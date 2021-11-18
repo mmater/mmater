@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anyone
 - 📫 How to reach me idk
 
-- 🎀 Contact, discord; mmater#3968
+- 🎀 Contact, discord; mmater#7535
 
 <!---
 mmater/mmater is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
